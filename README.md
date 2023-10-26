@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **ffaridulislam41@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/user/Downloads/CV%20(5).pdf](file:///C:/Users/user/Downloads/CV%20(5).pdf)
+- 📄 Know about my experiences Resume:https://drive.google.com/file/d/1K-TFcp3IUmB_PblXUKSFvy6i1SqWaiyH/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
